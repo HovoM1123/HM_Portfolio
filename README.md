@@ -1,5 +1,5 @@
 Thank you reading this file, all respective resources are creditted to the original owner of the format used.
-Editted by: John Konyan
+Editted by: Hovik Muradyan
 Credits:
 
 	Demo Images:
